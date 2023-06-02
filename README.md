@@ -1,0 +1,2 @@
+# komal
+DETAILS ABOUT BAD JATT
